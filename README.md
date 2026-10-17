@@ -7,3 +7,5 @@
 Seru. Banyak tugas. Sibuk.
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini
 Keren. Anak clusternya seru. Mentornya supportif.
+## Harapan Kuliah
+Bisa selesai 3.5 tahun. Punya portofolio keren. Berteman dengan banyak orang hebat.
